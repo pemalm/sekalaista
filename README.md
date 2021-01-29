@@ -1,0 +1,2 @@
+# sekalaista
+kuvia, sekalaisia tiedostoja
